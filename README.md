@@ -1,0 +1,1 @@
+Olá, meu nome é Tetris. Sou interessado em software livre, mitologia, linguística e qualquer coisa interessante no mundo. Meu objetivo é ajudar projetos de software livre. Você pode me contrar no Telegram como [@tetris097](https://t.me/tetris097).
